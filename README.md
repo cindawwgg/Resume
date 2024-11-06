@@ -1,3 +1,3 @@
 Greetings!
-Please see the attached pdf file for my resume
+Please see the attached word file for my resume
 Thank you
